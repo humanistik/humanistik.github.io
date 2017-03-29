@@ -1,1 +1,0 @@
-# humanistik.github.io
